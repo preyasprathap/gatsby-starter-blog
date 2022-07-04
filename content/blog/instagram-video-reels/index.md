@@ -17,3 +17,5 @@ However, for those with private accounts, the video post-cum-Reel will be only v
 Instagram is not only going full Reels for its platform, but it is also taking a lot of cues from TikTok, which could help the app become as popular as the ByteDance-owned service. Instagram has made a habit of picking up pieces from other platforms, most notably when it got Stories that were originally part of Snapchat many years back.
 
 The short-video market is heralded as the future, and looking at the growth attained by TikTok in a short time, Meta must have been encouraged to follow the same path and get its business model up and running for success in the future.
+
+added something else and commit
